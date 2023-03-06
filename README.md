@@ -1,0 +1,1 @@
+# susan-melinda_tugas_1_kecerdassan-buatan_2106093
